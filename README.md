@@ -64,7 +64,7 @@ Misuse of this tool is your sole responsibility and may constitute a criminal of
 
 ⸻
 
-💸 Tip Jar
+💸 Tip Jar (BTC ADRESS)
 
 If this helped you or saved you time:
 
